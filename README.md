@@ -31,7 +31,7 @@
 
 ![1](https://user-images.githubusercontent.com/86341272/169815151-d675c31a-e7dd-4767-bdbc-b3c2b0ca56d9.PNG)
 
-귀신의 손바닥 자국 / 귀신이 지나가면서 남긴 손자국을 옷장이나 문, 창문에 자외선 손전등으로 비추면 확인할 수 있습니다.
+귀신의 손바닥 자국 / 귀신이 지나가면서 남긴 손자국을 옷장이나 문, 창문에  손전등으로 비추면 확인할 수 있습니다.
 
 ![2](https://user-images.githubusercontent.com/86341272/169815156-c97a2c4b-2a4e-423b-be92-5d079879baf4.PNG)
 
